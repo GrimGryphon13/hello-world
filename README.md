@@ -4,3 +4,4 @@ I just want to say hello world, but this tutorial is making me write about mysel
 Weeeeellllllllllllllll, at least you did put something down -Kaleb
 _____________________________________________________________________________________________________________________________________
 Why u lying - Stephen
+why u hecking lying..... why u hecking lying..... stop friggin lyyyyinnngggggg -Kaleb
